@@ -234,4 +234,4 @@ Sky: Children of the Light is available as a complete free version with all feat
 Embark on your journey today! Download Sky: Children of the Light for free, and experience a world full of adventure and friendship.
 
 ---
-**Last updated:** 2026-10-03 04:03:24 UTC
+**Last updated:** 2026-10-03 10:13:40 UTC
